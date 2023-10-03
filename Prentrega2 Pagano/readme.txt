@@ -1,0 +1,1 @@
+Buenas mi nombre es Franco y este es mi pre-entrega numero 2, elegi hacer un listado de estos productos ya que es lo primero que se me ocurre a la hora de ir a comprar, gaseosas o energizantes y tambien queria aclarar que el html lo hice a modo ilustrativo nada mas 
